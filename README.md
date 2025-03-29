@@ -1,0 +1,1 @@
+Hey guys this is where you can get all your blender making needs for gtag blender. One thing though if you want cosmetics download it from this discord https://discord.gg/t26bYv54pk. Big thanks to nacho engine for lots of this stuff and yea.
